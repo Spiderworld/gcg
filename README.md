@@ -1,0 +1,2 @@
+# gcg
+Gulf Coin Gold (GCG Created in 2016, based on TRC 20-Smart Technology which is 100% decentralized now. The Crypto Currency registered in CANADA, UAE &amp; MADAGASCAR (FINANCE) Licences  GCG is now 100% distributed to users &amp; now used in Various Ecosystems with burning of GCGs on daily basis percents Wise. The 500 million GCG Will get Burnt daily as accordingly to GCG White paper upto 100 Million left in Circulation. Only 100 Million GCG Will be left in Circulation.
